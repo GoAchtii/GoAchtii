@@ -2,5 +2,5 @@
 
 - 👀 I’m interested in Minecraft Mods & Coding 👀
 
-  ☕ Support me ☕
+- ☕ Support me ☕
   https://ko-fi.com/goachtii
