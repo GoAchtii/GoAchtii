@@ -1,6 +1,10 @@
-- 👋 Hi, I’m @GoAchtii👋
+# 👋 Hey, I'm Achtii!👋
+**Current projects**
+---
+- Working at: School & Freelancing 👨
+- Working on: Secret Steam Game 👻
 
-- 👀 I’m interested in Minecraft Mods & Coding 👀
-
-- ☕ Support me ☕
-  https://ko-fi.com/goachtii
+**Get in touch ☕**
+---
+- Ask me anything on [Discord](https://discord.com): @goachtii 🗯️
+- Check out my socials on my [LinkTree](https://linktr.ee/achtii) 🌲
