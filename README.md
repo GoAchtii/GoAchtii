@@ -1,5 +1,5 @@
 # 👋 Hey, I'm Achtii!👋
-**Current projects**
+**Current projects 🖥️**
 ---
 - Working at: School & Freelancing 👨
 - Working on: Secret Steam Game 👻
