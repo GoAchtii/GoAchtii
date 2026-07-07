@@ -1,3 +1,4 @@
+![img](https://imgur.com/2caadBr.png)
 # 👋 Hey, I'm Achtii!👋
 **Current projects 🖥️**
 ---
