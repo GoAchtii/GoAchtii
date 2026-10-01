@@ -3,7 +3,7 @@
 **Current projects 🖥️**
 ---
 - Working at: School & Freelancing 👨
-- Working on: Secret Steam Game 👻
+- Working on: Some Minecraft Mods 👻
 
 **Get in touch ☕**
 ---
